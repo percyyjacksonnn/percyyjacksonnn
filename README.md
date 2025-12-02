@@ -1,4 +1,5 @@
 ![](https://files.catbox.moe/1aq0ll.png)
+<img src="https://komarev.com/ghpvc/?username=kurtzzworld96-username&color=422222&style=round&label=DEATH COUNT&abreviated=true">
 
  ![](https://i.pinimg.com/1200x/9a/54/55/9a545525d664ca62d2a71203f25be886.jpg)
 ## <p align="center" >𝒂𝒃𝒐𝒖𝒕 𝒎𝒘𝒆!</p>
